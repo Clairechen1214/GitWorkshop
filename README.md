@@ -10,3 +10,9 @@ Once your are done, save this file.
 
 Test
 sslkadfj;adfjalkdfjaskdjfasdlkfjaslkdfjasdfj;alksd
+Claire Chen
+
+Play Flute 
+Asian 
+Female
+Get 5 for AP test,and learn how to make game 
